@@ -1,5 +1,5 @@
 - 👋 hi, I’m @alinedugue
-- 👀 I’m interested in all kinds of design especially digital and architecurally 
+- 👀 I’m interested in all kinds of design especially digital and architecure
 - 🌱 I’m currently learning Rhino, Revit, and Sketchup
 - 💞️ I’m looking to collaborate on anything?
 - 📫 best to reach me on here 
